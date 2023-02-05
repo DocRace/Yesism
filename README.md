@@ -13,4 +13,5 @@ I'm not an native English speaker so I'd prefer using my mother tongue to start 
 - 极度宽容。允许否认终极价值，允许否认人的意义和能动性，但也允许选择希望而非绝望
 - 行动的。能够给务实的实践和行动提供充足的动力
 - 找到一个打通可能性、幻想和真实的大一统公式（如果运气好的话）
+
 这应该是一个关于“是”和“接纳”的哲学。或许可以叫做Yesism。
